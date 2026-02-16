@@ -278,8 +278,6 @@ An honorspren may begin following you, appearing when you make unexpectedly hono
 
 *"The bridge crew? They're soldiers. Soldiers die. At least under my command, their deaths will mean something."*
 
-*"When House Maroth sits at 7th dahn again, THEN I can afford principles."*
-
 ---
 
 ## NOTES

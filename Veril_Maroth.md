@@ -32,7 +32,7 @@
 **Short Black:** Traditional Alethi black hair kept short in military style. Well-groomed and maintained. Clean-shaven face with military precision.
 
 ### Overall Impression
-Veril Maroth carries himself with the controlled confidence of a trained officer. He retains a great deal of reserve, prone to brooding but rarely revealing what lies beneath.
+Veril Maroth carries himself with the controlled confidence of a trained officer. He retains a great deal of reserve, prone to brooding but rarely revealing his thoughts.
 
 Despite the polish and careful presentation, there's something unsettling about him - an intensity in those watchful, singular eyes. The refinement seems like a veneer over something darker: a fierce, wolfish quality.
 

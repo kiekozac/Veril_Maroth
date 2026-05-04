@@ -38,6 +38,8 @@ Despite the polish and careful presentation, there's something unsettling about 
 
 He looks capable and intelligent, someone who's learned to survive by being smarter and more calculated than necessary. His aristocratic bone structure and careful grooming mark his breeding, but the scars and that unsettling intensity mark what circumstances have forced him to become.
 
+Sister: Lira
+
 ---
 
 ## ATTRIBUTES & DEFENSES
